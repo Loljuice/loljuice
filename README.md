@@ -19,7 +19,7 @@ No. Make it yourself.
 *Do you like anime?*
 Yes.
 
-*Why are you not responding*
+*Why are you not responding?*
 Personal Life. Me forgetting. It goes on. Don't spam or I will block.
 
 ## End
